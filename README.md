@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=8569b4)
 
 <p align="center"
   
@@ -22,7 +23,6 @@
 <img src="https://file.garden/ZtttiuQF4zKolxgp/IMG_0292.png"/>
 </p>
 
-![](https://komarev.com/ghpvc/?username=sacrificedfool&color=8569b4)
 <!--
 **sacrificedfool/sacrificedfool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
