@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=8569b4)
 <p align="center"
   
 [rentry](https://rentry.co/ssacrificed)　. ݁𖦹₊ ⊹　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)
