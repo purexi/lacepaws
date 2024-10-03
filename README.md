@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sacrificedfool&color=8569b4)
+
 <p align="center"
   
 [rentry](https://rentry.co/ssacrificed)　. ݁𖦹₊ ⊹　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)
@@ -20,6 +20,7 @@
   ꒰ა ☆ ໒꒱
 </p>
 
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=8569b4)
 <!--
 **sacrificedfool/sacrificedfool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
