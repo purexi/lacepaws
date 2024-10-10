@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sacrificedfool&color=5b467e&label=Fresh+fraises)
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=5b467e&label=fraises)
 <p align="center"
   
 [rentry](https://rentry.co/ssacrificed)　꒰ა ☆ 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ☆ ໒꒱　[strawpage](https://cheriefraise.straw.page)
