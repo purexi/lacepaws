@@ -2,7 +2,7 @@
 
 <p align="center"
   
-[rentry](https://rentry.co/ssacrificed)　꒰ა ☆ ໒꒱　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　꒰ა ☆ ໒꒱　[strawpage](https://cheriefraise.straw.page)
+[rentry](https://rentry.co/ssacrificed)　꒰ა ☆ 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ☆ ໒꒱　[strawpage](https://cheriefraise.straw.page)
 <br>
 <br>
 <img src="https://file.garden/ZtttiuQF4zKolxgp/IMG_0289.png"/>
