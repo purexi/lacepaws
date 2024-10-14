@@ -14,8 +14,6 @@
   <img src="https://file.garden/ZtttiuQF4zKolxgp/IMG_0288.png"/>
   <br>
   <br>
-❝ 𝐓𝐚𝐤𝐞 𝐞𝐯𝐞𝐫𝐲 𝐦𝐨𝐦𝐞𝐧𝐭, 𝐢𝐭’𝐬 𝐟𝐢𝐧𝐞 𝐛𝐲 𝐦𝐞 ❞
-  <br>
 </p>
 
 <!--
