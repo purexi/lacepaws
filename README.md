@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sacrificedfool&color=ffffff&label=luvfraises)
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=ffffff&label=sacrificed)
 <p align="center"
   
 [rentry](https://rentry.co/ssacrificed)　꒰ა 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ໒꒱　[strawpage](https://cheriefraise.straw.page)
