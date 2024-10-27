@@ -1,6 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=sacrificedfool&color=ffffff&label=...)
 <p align="center"
   
+  <br>
+   ❝ 𝐌𝐨𝐧𝐢𝐭𝐨𝐫𝐢𝐧𝐠 𝐲𝐨𝐮, 𝐥𝐢𝐤𝐞 𝐦𝐚𝐜𝐡𝐢𝐧𝐞𝐬 𝐝𝐨. ❞
+  <p align="center"
 [rentry](https://rentry.co/ssacrificed)　꒰ა 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ໒꒱　[strawpage](https://cheriefraise.straw.page)
 <br>
 <br>
