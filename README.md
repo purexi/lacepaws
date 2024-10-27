@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=sacrificedfool&color=ffffff&label=luvfraises)
 <p align="center"
   
-[rentry](https://rentry.co/ssacrificed)　꒰ა ☆ 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ☆ ໒꒱　[strawpage](https://cheriefraise.straw.page)
+[rentry](https://rentry.co/ssacrificed)　꒰ა 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ໒꒱　[strawpage](https://cheriefraise.straw.page)
 <br>
 <br>
 <img src="https://files.catbox.moe/25wwqd.png"/>
