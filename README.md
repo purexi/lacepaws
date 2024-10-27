@@ -1,17 +1,17 @@
-![](https://komarev.com/ghpvc/?username=sacrificedfool&color=5b467e&label=luvfraises)
+![](https://komarev.com/ghpvc/?username=sacrificedfool&color=ffffff&label=luvfraises)
 <p align="center"
   
 [rentry](https://rentry.co/ssacrificed)　꒰ა ☆ 　ㅤㅤㅤㅤㅤㅤㅤ[atabook](https://sacrificedfool.atabook.org/)　 ☆ ໒꒱　[strawpage](https://cheriefraise.straw.page)
 <br>
 <br>
-<img src="https://file.garden/ZtttiuQF4zKolxgp/IMG_0289.png"/>
+<img src="https://files.catbox.moe/25wwqd.png"/>
 </p>
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/Chaircrush.png"/>
+<img src="https://files.catbox.moe/6l4ouv.png"/>
 </p>
 
 <p align="center">
-  <img src="https://file.garden/ZtttiuQF4zKolxgp/IMG_0288.png"/>
+  <img src="https://files.catbox.moe/cjw0c3.png"/>
   <br>
   <br>
 </p>
