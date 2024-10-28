@@ -11,7 +11,7 @@
 <img src="https://files.catbox.moe/25wwqd.png"/>
 </p>
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/Stinkvantil.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/Faggots.png"/>
 </p>
 
 <p align="center">
