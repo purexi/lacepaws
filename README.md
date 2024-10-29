@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=forbitten&color=ffffff&label=𖤐)
+![](https://komarev.com/ghpvc/?username=forbitten&color=000000&label=𖤐)
 <p align="center"
   
   ❝ 𝐌𝐨𝐧𝐢𝐭𝐨𝐫𝐢𝐧𝐠 𝐲𝐨𝐮 , 𝐥𝐢𝐤𝐞 𝐦𝐚𝐜𝐡𝐢𝐧𝐞𝐬 𝐝𝐨. ❞
