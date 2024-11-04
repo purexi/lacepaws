@@ -8,14 +8,13 @@
 ㅤㅤㅤㅤㅤㅤㅤʚ [atabook](https://sacrificedfool.atabook.org/)　 ^ིྀ　[strawpage](https://forbitten.straw.page) ɞ
 <br>
 <br>
-<img src="https://files.catbox.moe/25wwqd.png"/>
 </p>
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/Faggots.png"/>
+  <img src="https://file.garden/ZtttiuQF4zKolxgp/J.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/cjw0c3.png"/>
   <br>
   <br>
 </p>
