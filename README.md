@@ -6,19 +6,14 @@
     ❝ 𝐂𝐚𝐧 𝐲𝐨𝐮 𝐦𝐚𝐤𝐞 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭 𝐬𝐭𝐨𝐩 ,
      𝐇𝐢𝐭 𝐦𝐞 𝐰𝐢𝐭𝐡 𝐲𝐨𝐮𝐫 𝐤𝐢𝐥𝐥 𝐬𝐡𝐨𝐭 𝐛𝐚𝐛𝐲 ❞
      
- <p align="center"
-    
-ㅤㅤㅤㅤㅤㅤㅤʚ [Atabook](https://forbitten.atabook.org/)　 ♤^ིྀ　[Strawpage](https://forbitten.straw.page) ɞ
-<br>
-<br>
-</p>
 <p align="center">
 <img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
 </p>
 
-<p align="center">
-  <br>
-  <br>
+<p align="center"
+   
+   ʚ [Atabook](https://forbitten.atabook.org/)　 ♤^ིྀ　[Strawpage](https://forbitten.straw.page) ɞ
+<br>
 </p>
 
 <!--
