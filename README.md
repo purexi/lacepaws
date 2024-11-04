@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=forbitten&color=1f1f1f&label=𖤐)
 <p align="center"
-  
-  ❝ 𝐌𝐨𝐧𝐢𝐭𝐨𝐫𝐢𝐧𝐠 𝐲𝐨𝐮 , 𝐥𝐢𝐤𝐞 𝐦𝐚𝐜𝐡𝐢𝐧𝐞𝐬 𝐝𝐨. ❞
    
   <p align="center"   
     
