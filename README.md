@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=forbitten&color=1f1f1f&label=bets)
+![](https://komarev.com/ghpvc/?username=forbitten&color=1f1f1f&label=bets‎-placed)
 <p align="center"
    
   <p align="center"   
