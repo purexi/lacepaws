@@ -1,9 +1,14 @@
 ![](https://komarev.com/ghpvc/?username=forbitten&color=1f1f1f&label=bets‎-placed)
 <p align="center"
    
-  <p align="center"   
+  <p align="center"
      
-ㅤㅤㅤㅤㅤㅤㅤʚ [ATA](https://forbitten.atabook.org/)　 ♤^ིྀ　[STRAW](https://forbitten.straw.page) ɞ
+    ❝ 𝐂𝐚𝐧 𝐲𝐨𝐮 𝐦𝐚𝐤𝐞 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭 𝐬𝐭𝐨𝐩 ,
+     𝐇𝐢𝐭 𝐦𝐞 𝐰𝐢𝐭𝐡 𝐲𝐨𝐮𝐫 𝐤𝐢𝐥𝐥 𝐬𝐡𝐨𝐭 𝐛𝐚𝐛𝐲 ❞
+     
+ <p align="center"
+    
+ㅤㅤㅤㅤㅤㅤㅤʚ [Atabook](https://forbitten.atabook.org/)　 ♤^ིྀ　[Strawpage](https://forbitten.straw.page) ɞ
 <br>
 <br>
 </p>
