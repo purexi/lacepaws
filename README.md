@@ -12,7 +12,7 @@
 
 <p align="center"
    
-   ʚ [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forbitten.atabook.org/)　 ♤^ིྀ　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
+   ʚ [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forbitten.atabook.org/)　^ིྀ　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
 <br>
 </p>
 
