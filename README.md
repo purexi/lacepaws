@@ -10,7 +10,6 @@
 <br>
 </p>
 <p align="center">
-  <img src="https://file.garden/ZtttiuQF4zKolxgp/J.png"/>
 <img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
 </p>
 
