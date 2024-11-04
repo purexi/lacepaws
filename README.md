@@ -3,7 +3,7 @@
    
   <p align="center"   
     
-ㅤㅤㅤㅤㅤㅤㅤʚ [atabook](https://sacrificedfool.atabook.org/)　 ^ིྀ　[strawpage](https://forbitten.straw.page) ɞ
+ㅤㅤㅤㅤㅤㅤㅤʚ [atabook](https://forbitten.atabook.org/)　 ^ིྀ　[strawpage](https://forbitten.straw.page) ɞ
 <br>
 <br>
 </p>
