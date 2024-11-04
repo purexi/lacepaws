@@ -2,8 +2,8 @@
 <p align="center"
    
   <p align="center"   
-    
-ㅤㅤㅤㅤㅤㅤㅤʚ [atabook](https://forbitten.atabook.org/)　 ♤^ིྀ　[strawpage](https://forbitten.straw.page) ɞ
+     
+ㅤㅤㅤㅤㅤㅤㅤʚ [ATA](https://forbitten.atabook.org/)　 ♤^ིྀ　[STRAW](https://forbitten.straw.page) ɞ
 <br>
 <br>
 </p>
