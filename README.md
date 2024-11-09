@@ -6,6 +6,13 @@
     ❝ 𝐂𝐚𝐧 𝐲𝐨𝐮 𝐦𝐚𝐤𝐞 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭 𝐬𝐭𝐨𝐩 ,
      𝐇𝐢𝐭 𝐦𝐞 𝐰𝐢𝐭𝐡 𝐲𝐨𝐮𝐫 𝐤𝐢𝐥𝐥 𝐬𝐡𝐨𝐭 𝐛𝐚𝐛𝐲 ❞
      
+  <p align="center">   
+     ︶꒷︶꒦︶◞ ♤ ◟︶꒦︶꒷︶
+      <p align="center"> 
+   𝐈𝐖𝐂 𝐚𝐭 𝐚𝐥𝐥 𝐭𝐢𝐦𝐞𝐬.
+       <p align="center">
+𝐂 + 𝐇 𝐢𝐬 𝐰𝐞𝐥𝐜𝐨𝐦𝐞𝐝 𝐮𝐧𝐥𝐞𝐬𝐬 𝐰𝐢𝐭𝐡 𝐟𝐫𝐢𝐞𝐧𝐝𝐬.
+          
 <p align="center">
 <img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
 </p>
