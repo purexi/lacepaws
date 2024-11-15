@@ -14,8 +14,6 @@
      -𝟏𝟒 𝐃𝐍𝐈.
       <p align="center"> 
    𝐈𝐖𝐂.
-       <p align="center">
-𝐂 + 𝐇 𝐢𝐬 𝐰𝐞𝐥𝐜𝐨𝐦𝐞𝐝 𝐮𝐧𝐥𝐞𝐬𝐬 𝐰𝐢𝐭𝐡 𝐟𝐫𝐢𝐞𝐧𝐝𝐬.
           
 <p align="center">
 <img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
