@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=forbitten&color=d6eae7&label=------------𝐑𝐨𝐬𝐞𝐬----------------)
+![](https://komarev.com/ghpvc/?username=forbitten&color=d6eae7&label=------------𝐁𝐮𝐥𝐥𝐞𝐭𝐬----------------)
 
    
   <p align="center"
