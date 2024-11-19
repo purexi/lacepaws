@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=forbitten&color=d6eae7&label=------------𝐁𝐮𝐥𝐥𝐞𝐭𝐬----------------)
+![](https://komarev.com/ghpvc/?username=forbitten&color=5d2121&label=------------𝐁𝐮𝐥𝐥𝐞𝐭𝐬----------------)
 
    
   <p align="center"
@@ -17,7 +17,7 @@
  </p>
  
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/sntn.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/ah.png"/>
 </p>
 
 
