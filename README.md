@@ -9,7 +9,7 @@
      𝐚𝐬 𝐢𝐟 𝐰𝐞 𝐧𝐞𝐯𝐞𝐫 𝐥𝐨𝐯𝐞𝐝 𝐞𝐚𝐜𝐡 𝐨𝐭𝐡𝐞𝐫 ❞
      
   <p align="center">   
-     ︶꒷︶꒦︶◞ ♤ ◟︶꒦︶꒷︶
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/cr%20anitalenia.png"/>
      
    <p align="center"
    
