@@ -20,9 +20,6 @@
 <img src="https://file.garden/ZtttiuQF4zKolxgp/Bo.png"/>
 </p>
 
-<p align="center"
-
-    cr ; xxrosemixx (tmblr)
 
 
 <!--
