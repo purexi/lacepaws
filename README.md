@@ -20,6 +20,10 @@
 <img src="https://file.garden/ZtttiuQF4zKolxgp/boot.png"/>
 </p>
 
+<p align="center"
+
+    cr ; xxrosemixx (tmblr)
+
 
 <!--
 **sacrificedfool/sacrificedfool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
