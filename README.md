@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=forbitten&color=5d2121&label=------------𝐁𝐮𝐥𝐥𝐞𝐭𝐬----------------)
+![](https://komarev.com/ghpvc/?username=forbitten&color=ebddd7&label=--------𝐅𝐫𝐚𝐢𝐬𝐞𝐬------------)
 
    
   <p align="center"
@@ -9,7 +9,7 @@
      𝐚𝐬 𝐢𝐟 𝐰𝐞 𝐧𝐞𝐯𝐞𝐫 𝐥𝐨𝐯𝐞𝐝 𝐞𝐚𝐜𝐡 𝐨𝐭𝐡𝐞𝐫 ❞
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/cr%20anitalenia.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/Untitled134_20241130195615.png"/>
      
    <p align="center"
    
