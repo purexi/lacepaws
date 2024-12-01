@@ -17,7 +17,7 @@
  </p>
  
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/Untitled135_20241130202836.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/chair.png"/>
 </p>
 
 
