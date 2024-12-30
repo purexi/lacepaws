@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=lacepaws&color=521313&label=pawprints)
+![](https://komarev.com/ghpvc/?username=lacepaws&color=e4eefb&label=pawprints)
 
    
   <p align="center"
@@ -9,7 +9,7 @@
      𝐈'𝐦 𝐥𝐨𝐬𝐭 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐲𝐨𝐮 ❞
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/ba.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/bobvns.png"/>
      
    <p align="center"
    
