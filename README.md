@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=lacepaws&color=e4eefb&label=pawprints)
+![](https://komarev.com/ghpvc/?username=lacepaws&color=000000&label=pawprints)
 
    
   <p align="center"
