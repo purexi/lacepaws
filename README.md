@@ -9,7 +9,7 @@
      𝐈'𝐦 𝐥𝐨𝐬𝐭 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐲𝐨𝐮 ❞
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/bobvns.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/ba.png"/>
      
    <p align="center"
    
@@ -17,7 +17,7 @@
  </p>
  
 <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/woof.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/buh.png"/>
 </p>
 
 
