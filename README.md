@@ -15,10 +15,7 @@
    
 ʚ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/lacepaws)　^ིྀ　[𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forbitten.atabook.org/)　^ིྀ　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
  </p>
- 
-<p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/ew.png"/>
-</p>
+
 
 
 
