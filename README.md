@@ -5,17 +5,16 @@
    
   <p align="center"
      
-    ❝ 𝐓𝐡𝐞 𝐬𝐜𝐞𝐧𝐭 𝐩𝐞𝐫𝐦𝐞𝐚𝐭𝐞𝐬 𝐚𝐧𝐝 𝐥𝐢𝐧𝐠𝐞𝐫𝐬,
-     𝐈'𝐦 𝐥𝐨𝐬𝐭 𝐥𝐨𝐨𝐤𝐢𝐧𝐠 𝐟𝐨𝐫 𝐲𝐨𝐮 ❞
-     
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/gogoat.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/1.png"/>
      
    <p align="center"
    
 ʚ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/lacepaws)　^ིྀ　[𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forbitten.atabook.org/)　^ིྀ　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
  </p>
 
+   <p align="center">
+<img src="https://file.garden/ZtttiuQF4zKolxgp/2.png"/>
 
 
 
