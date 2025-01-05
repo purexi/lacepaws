@@ -9,7 +9,7 @@
      <img src="https://file.garden/ZtttiuQF4zKolxgp/1.png"/>
      
   <p align="center">
-   <img src="https://file.garden/ZtttiuQF4zKolxgp/morr.png"/>
+   <img src="https://file.garden/ZtttiuQF4zKolxgp/Untitled151_20250105165836.png"/>
    
    <p align="center"
    
