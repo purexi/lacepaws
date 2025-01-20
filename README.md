@@ -6,7 +6,7 @@
   <p align="center"
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/1.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/Up.png"/>
      
   <p align="center">
    <img src="https://file.garden/ZtttiuQF4zKolxgp/Untitled151_20250105165836.png"/>
@@ -17,7 +17,7 @@
  </p>
 
    <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/2.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/down.png"/>
 
 
 
