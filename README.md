@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=purxi&color=726683&label=souls)
+![](https://komarev.com/ghpvc/?username=purxi&color=E7E7E7&label=souls)
 
    
   <p align="center"
