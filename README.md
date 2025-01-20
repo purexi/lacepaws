@@ -8,8 +8,6 @@
   <p align="center">   
      <img src="https://file.garden/ZtttiuQF4zKolxgp/Up.png"/>
      
-  <p align="center">
-   <img src="https://file.garden/ZtttiuQF4zKolxgp/Untitled151_20250105165836.png"/>
    
    <p align="center"
    
