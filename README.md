@@ -18,7 +18,7 @@
    
  <p align="center"
    
-ʚ [Rentry](https://rentry.co/lacepaws) - [Atabook](https://forbitten.atabook.org/) - [Strawpage](https://forbitten.straw.page) ɞ
+ʚ [Rentry](https://rentry.co/lacepaws) ﹕ [Atabook](https://forbitten.atabook.org/) ﹕ [Strawpage](https://forbitten.straw.page) ɞ
  </p>
 
    <p align="center">
