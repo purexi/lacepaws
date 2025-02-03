@@ -15,11 +15,11 @@
      
 <p align="center"
    
-٬⠀⠀✦⠀⠀⌢⠀⠀𝐛linded by selfishness⠀⠀.
+٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐇ope you come across⠀⠀.
 
 <p align="center"
    
-  ❝⠀𝐚s if we never loved each other⠀⠀✧⠀⠀.
+  ❝⠀𝐬omething more than 𝐛etter⠀⠀✧⠀⠀.
    
  <p align="center"
    
