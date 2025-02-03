@@ -1,12 +1,17 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=purxi&color=FAE3E6&label=souls)
+![](https://komarev.com/ghpvc/?username=purxi&color=B3BA9B&label=Moomins)
 
    
   <p align="center"
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/Up.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/ow.png"/>
+    
+   <p align="center"
+     
+  <p align="center">   
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/hgr.png"/>
      
 <p align="center"
    
@@ -22,7 +27,7 @@
  </p>
 
    <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/down.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/wo.png"/>
 
 
 
