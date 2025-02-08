@@ -1,33 +1,33 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=purxi&color=B3BA9B&label=Moomins)
+![](https://komarev.com/ghpvc/?username=purxi&color=ebebeb&label=Stars)
 
+ <p align="center"
+   
+ʚ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/purexiao) ﹕ [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://purexi.atabook.org/) ﹕ [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
+ </p>
    
   <p align="center"
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/ow.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/upp.png"/>
     
-   <p align="center"
-     
-  <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/hgr.png"/>
-     
 <p align="center"
    
 ٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐇ope you come across⠀⠀.
+     
+  <p align="center">   
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/Hwas.png"/>
+     
+
 
 <p align="center"
    
   ❝⠀𝐬omething more than 𝐛etter⠀⠀✧⠀⠀.
    
- <p align="center"
-   
-ʚ [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/purexiao) ﹕ [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://purexi.atabook.org/) ﹕ [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) ɞ
- </p>
 
    <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/wo.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/dowwn.png"/>
 
 
 
