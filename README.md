@@ -14,7 +14,7 @@
     
 <p align="center"
    
-٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐇ope you come across⠀⠀.
+٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐔p high just like the violin⠀⠀.
      
   <p align="center">   
      <img src="https://file.garden/ZtttiuQF4zKolxgp/hau.png"/>
@@ -23,7 +23,7 @@
 
 <p align="center"
    
-  ❝⠀𝐬omething more than 𝐛etter⠀⠀✧⠀⠀.
+  ❝⠀𝐈 can hear them 𝐬cream my name⠀⠀✧⠀⠀.
    
 
    <p align="center">
