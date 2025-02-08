@@ -10,14 +10,14 @@
   <p align="center"
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/upp.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/O.png"/>
     
 <p align="center"
    
 ٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐇ope you come across⠀⠀.
      
   <p align="center">   
-     <img src="https://file.garden/ZtttiuQF4zKolxgp/Hwas.png"/>
+     <img src="https://file.garden/ZtttiuQF4zKolxgp/hau.png"/>
      
 
 
@@ -27,7 +27,7 @@
    
 
    <p align="center">
-<img src="https://file.garden/ZtttiuQF4zKolxgp/dowwn.png"/>
+<img src="https://file.garden/ZtttiuQF4zKolxgp/Siois.png"/>
 
 
 
