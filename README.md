@@ -1,6 +1,6 @@
 <p align="center"
    
-![](https://komarev.com/ghpvc/?username=purxi&color=DBD1E3&label=Audience)
+![](https://komarev.com/ghpvc/?username=purxi&color=CAC9CE&label=Audience)
 
  <p align="center"
    
@@ -10,14 +10,14 @@
   <p align="center"
      
   <p align="center">   
-     <img src="https://files.catbox.moe/40g74v.png"/>
+     <img src="https://files.catbox.moe/nr6khr.png"/>
     
 <p align="center"
    
 ٬⠀⠀✦⠀⠀⌢⠀⠀ 𝐔p high just like the violin⠀⠀.
      
   <p align="center">   
-     <img src="https://files.catbox.moe/3eh0sa.png"/>
+     <img src="https://files.catbox.moe/mqaedq.png"/>
      
 
 
@@ -27,7 +27,7 @@
    
 
    <p align="center">
-<img src="https://files.catbox.moe/40g74v.png"/>
+<img src="https://files.catbox.moe/9udngf.png"/>
 
 
 
