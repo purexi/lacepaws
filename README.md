@@ -2,10 +2,6 @@
    
 ![](https://komarev.com/ghpvc/?username=purxi&color=CAC9CE&label=Audience)
 
- <p align="center"
-   
-**𝜗** [𝐑𝐞𝐧𝐭𝐫𝐲](https://rentry.co/purexiao) **⠀⌢⠀** [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://purexi.atabook.org/) **⠀⌢⠀** [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://forbitten.straw.page) **𝜚**
- </p>
    
   <p align="center"
      
